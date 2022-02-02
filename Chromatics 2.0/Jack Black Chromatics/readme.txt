@@ -1,1 +1,0 @@
-This was made by my friend corperator, Check him out! https://www.youtube.com/channel/UCeqC7K-ududWN_CLyr15-eA
